@@ -1,4 +1,4 @@
-# dance
+# "Neural Dance" art collection
 
  <br/><br/>
   <br/><br/>
