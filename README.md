@@ -59,8 +59,11 @@ https://rarible.com/token/0xf6793da657495ffeff9ee6350824910abc21356c:64669575457
  
   <br/><br/>
 
- 
- 
+  ### Stream of consciousness
+
+  <img src="https://github.com/leeseomin/dance/blob/main/art/Streamofconsciousness.png" width="80%"> 
+  <br/><br/>
+
   ### Author and Creator
  
  LEE SEOMIN
