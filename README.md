@@ -40,6 +40,15 @@ https://rarible.com/token/0xf6793da657495ffeff9ee6350824910abc21356c:64669575457
  <br/><br/>
  
  
+ ### Memoria No.12 
+ 
+  <img src="https://github.com/leeseomin/dance/blob/main/art/Memoria%20No.12.png" width="1500"> 
+
+ https://rarible.com/token/0xf6793da657495ffeff9ee6350824910abc21356c:64669575457772622843733520472986026667877001999885492881277833910229705687041?tab=details
+ 
+  <br/><br/>
+
+ 
  
   ### Author and Creator
  
