@@ -27,7 +27,7 @@ https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:857874?tab=
 
 ### Fairy of the forest
 
- <img src="https://github.com/leeseomin/dance/blob/main/art/dance3.png" width="80%"> 
+ <img src="https://github.com/leeseomin/dance/blob/main/art/Fairyoftheforest.png" width="80%"> 
 
 https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:1384915?tab=details
 
