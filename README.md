@@ -1,4 +1,4 @@
-# "Neural Dance" art collection
+# "movement or Dance" art collection
 
  <br/><br/>
   <br/><br/>
