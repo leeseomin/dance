@@ -36,7 +36,7 @@ https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:1384915?tab
   
 ### Neural Dance #002
 
- <img src="https://github.com/leeseomin/dance/blob/main/art/dance2.png" width="85%"> 
+ <img src="https://github.com/leeseomin/dance/blob/main/art/dance2.png" width="75%"> 
 https://rarible.com/token/0xf6793da657495ffeff9ee6350824910abc21356c:64669575457772622843733520472986026667877001999885492881277833910229705687043?tab=details
 
 <br/><br/>
