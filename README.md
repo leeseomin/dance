@@ -7,7 +7,7 @@
 ### Surfing in a dream 
 
  
- 
+ https://github.com/leeseomin/dance/blob/main/art/surfing.mp4 
  
  
 https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:764253?tab=details 
