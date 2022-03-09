@@ -4,6 +4,17 @@
   <br/><br/>
   
   
+### AI generated artwork no.1
+
+
+
+
+https://user-images.githubusercontent.com/86279699/157370066-2d6006a9-db78-4f72-a7b1-d16bf85d9f6c.mp4
+
+https://rarible.com/token/0xd07dc4262bcdbf85190c01c996b4c06a461d2430:565415?tab=owners 
+
+<br/><br/>
+  
 ### Movement 87
 
 
