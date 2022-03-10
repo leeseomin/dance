@@ -4,19 +4,6 @@
   <br/><br/>
   
   
-### Surfing in a dream 
- 
- 
-
-
-https://user-images.githubusercontent.com/86279699/157563469-9f48f0a1-572a-4774-92f0-5bed8fd55c51.mp4
-
-
-
- 
-https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:764253?tab=details 
-  
-<br/><br/>
   
   
 ### AI generated artwork no.1
@@ -38,6 +25,22 @@ https://user-images.githubusercontent.com/86279699/157368441-2e02df55-02f9-4804-
 https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:857874?tab=details
 
 <br/><br/>
+
+
+### Surfing in a dream 
+ 
+ 
+
+
+https://user-images.githubusercontent.com/86279699/157563469-9f48f0a1-572a-4774-92f0-5bed8fd55c51.mp4
+
+
+
+ 
+https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:764253?tab=details 
+  
+<br/><br/>
+
 
 
 ### Fairy of the forest
