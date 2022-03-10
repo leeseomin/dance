@@ -6,20 +6,7 @@
   
   
   
-### Hell is yourself #001
 
-
-
-
-
-
-https://user-images.githubusercontent.com/86279699/157653482-b58e73b8-bdb8-4785-a015-b9409be0d02d.mp4
-
-
-  https://rarible.com/token/0xd07dc4262bcdbf85190c01c996b4c06a461d2430:488236?tab=owners
-  
-  
-  <br/><br/>
 
   
 ### AI generated artwork no.1
@@ -61,6 +48,18 @@ https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:764253?tab=
   
 <br/><br/>
 
+
+### Hell is yourself #001
+
+
+
+https://user-images.githubusercontent.com/86279699/157653482-b58e73b8-bdb8-4785-a015-b9409be0d02d.mp4
+
+
+  https://rarible.com/token/0xd07dc4262bcdbf85190c01c996b4c06a461d2430:488236?tab=owners
+  
+  
+  <br/><br/>
 
 
 ### Fairy of the forest
