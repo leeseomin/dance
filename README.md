@@ -5,7 +5,17 @@
   
   
   
-  
+### Gogh and face algorithm
+
+
+
+
+
+https://user-images.githubusercontent.com/86279699/157654616-efed74e3-c890-49c3-ae37-92959b4fb0b7.mp4
+
+https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:769335?tab=details
+
+ <br/><br/>
 
 
   
