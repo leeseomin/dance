@@ -9,15 +9,14 @@
  
 
 
-
-https://user-images.githubusercontent.com/86279699/157561363-43421beb-150e-40c6-a202-cbf5151a2e1e.mp4
-
-
+https://user-images.githubusercontent.com/86279699/157563469-9f48f0a1-572a-4774-92f0-5bed8fd55c51.mp4
 
 
 
  
 https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:764253?tab=details 
+  
+<br/><br/>
   
   
 ### AI generated artwork no.1
