@@ -46,6 +46,20 @@ https://rarible.com/token/0xd07dc4262bcdbf85190c01c996b4c06a461d2430:479430?tab=
 
 
 
+### Forgotten #001
+
+
+
+
+https://user-images.githubusercontent.com/86279699/157656866-f77a7c19-010d-4384-9498-3541d8121c0a.mp4
+
+https://rarible.com/token/0xd07dc4262bcdbf85190c01c996b4c06a461d2430:487001?tab=owners
+
+<br/><br/>
+
+
+
+
 ### Gogh and face algorithm
 
 
