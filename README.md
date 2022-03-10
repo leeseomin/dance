@@ -6,6 +6,10 @@
   
 ### Surfing in a dream 
 
+<video width="100%" height="100%" controls="controls">
+<source src="https://github.com/leeseomin/dance/blob/main/art/surfing.mp4">
+</video>
+ 
  
  https://github.com/leeseomin/dance/blob/main/art/surfing.mp4 
  
