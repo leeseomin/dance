@@ -5,17 +5,7 @@
   
   
   
-### Gogh and face algorithm
 
-
-
-
-
-https://user-images.githubusercontent.com/86279699/157654616-efed74e3-c890-49c3-ae37-92959b4fb0b7.mp4
-
-https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:769335?tab=details
-
- <br/><br/>
 
 
   
@@ -40,6 +30,34 @@ https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:857874?tab=
 <br/><br/>
 
 
+
+### Life is suffering #001
+
+
+
+
+
+https://user-images.githubusercontent.com/86279699/157655942-380a8c3c-a623-4844-a923-1851c5660951.mp4
+
+https://rarible.com/token/0xd07dc4262bcdbf85190c01c996b4c06a461d2430:479430?tab=owners
+
+<br/><br/>
+
+
+
+
+### Gogh and face algorithm
+
+
+
+
+https://user-images.githubusercontent.com/86279699/157654616-efed74e3-c890-49c3-ae37-92959b4fb0b7.mp4
+
+https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:769335?tab=details
+
+ <br/><br/>
+ 
+ 
 
 ### Void Odyssey
 
