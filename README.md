@@ -62,6 +62,7 @@ https://rarible.com/token/0xd07dc4262bcdbf85190c01c996b4c06a461d2430:487001?tab=
 
 ### Gogh and face algorithm
 
+https://vimeo.com/720101953 
 
 
 
