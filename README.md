@@ -136,7 +136,15 @@ https://rarible.com/token/0xf6793da657495ffeff9ee6350824910abc21356c:64669575457
 
 ### Neural Dance #003
 
- <img src="https://github.com/leeseomin/dance/blob/main/art/dance3.png" width="80%"> 
+
+
+
+https://user-images.githubusercontent.com/86279699/173491906-fc792936-e57d-4f2c-878a-9f4c09f239a8.mp4
+
+
+
+
+
 
 https://rarible.com/token/0xf6793da657495ffeff9ee6350824910abc21356c:64669575457772622843733520472986026667877001999885492881277833910229705687044?tab=details
 
