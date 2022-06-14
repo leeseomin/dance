@@ -159,6 +159,7 @@ https://rarible.com/token/0xf6793da657495ffeff9ee6350824910abc21356c:64669575457
   <br/><br/>
 
   ### Stream of consciousness
+  https://vimeo.com/720108884
 
   <img src="https://github.com/leeseomin/dance/blob/main/art/Streamofconsciousness.png" width="80%"> 
   https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:1224088?tab=details
