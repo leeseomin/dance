@@ -19,8 +19,7 @@ https://user-images.githubusercontent.com/86279699/198213821-6c18d578-f95f-46b6-
 
  <br/><br/>
 
-
-[![Watch the video](https://img.youtube.com/vi/nTQUwghvy5Q/default.jpg)](https://youtu.be/nl6mNVIhE8c)
+https://youtu.be/nl6mNVIhE8c)
 
 
   
