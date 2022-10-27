@@ -22,7 +22,7 @@ https://user-images.githubusercontent.com/86279699/198213821-6c18d578-f95f-46b6-
 
 ###  Any Dream No.5
 
-[![Watch the video](https://img.youtube.com/vi/nl6mNVIhE8c/default.jpg alt="drawing" width="1200"/)](https://youtu.be/nl6mNVIhE8c)
+[![Watch the video](https://img.youtube.com/vi/nl6mNVIhE8c/default.jpg)](https://youtu.be/nl6mNVIhE8c)
 
 
   
