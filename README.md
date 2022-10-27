@@ -19,12 +19,8 @@ https://user-images.githubusercontent.com/86279699/198213821-6c18d578-f95f-46b6-
 
  <br/><br/>
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nl6mNVIhE8c" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 
-<a href="http://www.youtube.com/watch?feature=player_embedded&v=nTQUwghvy5Q" target="_blank">
- <img src="http://img.youtube.com/vi/nTQUwghvy5Q/mqdefault.jpg" alt="Watch the video" width="240" height="180" border="10" />
-</a>
   
 ### AI generated artwork no.1
 
