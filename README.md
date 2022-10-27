@@ -7,8 +7,16 @@
   
 ### Neural Dance #005_reboot
 
- <img src="https://github.com/leeseomin/dance/blob/main/art/NeuralDance%23005_reboot.mov" width="80%"> 
- 
+
+
+
+
+https://user-images.githubusercontent.com/86279699/198213821-6c18d578-f95f-46b6-bd46-5951bfbde936.mp4
+
+
+
+
+
  <br/><br/>
 
 
