@@ -43,6 +43,11 @@ https://user-images.githubusercontent.com/86279699/198914002-d8bd2793-ca50-4180-
 
 
 
+### Eternal life belongs to those who live in the present 2
+
+on
+https://rarible.com/token/0xc9154424b823b10579895ccbe442d41b9abd96ed:64669575457772622843733520472986026667877001999885492881277833910229705687052?tab=overview
+
   
 ### AI generated artwork no.1
 
