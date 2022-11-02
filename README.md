@@ -50,6 +50,7 @@ youtube :  https://youtube.com/shorts/GB8UfkY7Mag?feature=share
 
 
 [900.webm](https://user-images.githubusercontent.com/86279699/199259409-b69a6f51-7df3-47ed-8885-ef67a1394f31.webm)
+<br/>
 nft : https://rarible.com/token/0xc9154424b823b10579895ccbe442d41b9abd96ed:64669575457772622843733520472986026667877001999885492881277833910229705687053?tab=overview
 
   <br/><br/>
