@@ -2,7 +2,19 @@
 
  <br/><br/>
   <br/><br/>
-  
+
+
+
+
+### "A moment's journey"
+
+
+
+https://user-images.githubusercontent.com/86279699/201466067-b4b92c87-bd4f-45d0-86f7-e2c65b0f3848.mp4
+
+
+
+https://youtube.com/shorts/kFPrNE8q1Sc?feature=share
   
   
 ### Neural Dance #005_reboot
